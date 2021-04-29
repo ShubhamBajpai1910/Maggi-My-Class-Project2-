@@ -1,1 +1,1 @@
-# Maggi-My-Class-Project2-
+The recipe for maggi is a very simple step-by-step instruction . If we want to learn how to cook then cooking maggi is the best way to start . The recipe includes the taste maker provided by nestle and ready-to-cook noodle cake as well .

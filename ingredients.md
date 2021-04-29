@@ -1,0 +1,5 @@
+Taste Maker(Provided in the pack)
+Spices and Black Pepper(For Additional Taste/Optional)
+Noodle Cake(Provided in the pack)
+1 ½ OR 2 cups water(For 1 person)
+1 Cheese cube(For Additional Taste/Optional)
